@@ -1,6 +1,4 @@
 # patoclicker
 
-ola bb
-contesta pvta
-wasaaaaa
-123
+me duele me lastima
+
